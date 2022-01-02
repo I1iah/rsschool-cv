@@ -14,10 +14,5 @@
 
 
 ## At the moment I have no experience, but I have a great desire
-
-
 ## Finished SSU (Materials Science and Technology of New Materials)
-
-
-
 ## level of english: A2
